@@ -1,4 +1,4 @@
-![Graphics Designer | Web Designer](https://www.facebook.com/photo/?fbid=1115029652460368&set=a.104364066860270)
+
 
 ### Hi there 👋, I'm Araf Ahmed 
 #### Graphics Designer | Web Designer
